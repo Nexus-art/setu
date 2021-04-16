@@ -1,2 +1,1 @@
-# setu
-SetIUp
+Klawiatura/Keyboard- Razer Huntsman Myszka/Mouse- SPC GEAR LIX+ słychawki/Headphones- SteelSeries Arctis 3 Mikrofon/microphone- Thronmax Mdrill one pro Monitor 1- HP X24C Monitor 2- MSI OPTIX G241 VC Mouse Bungee- Genesis Vanad 500 Podkładka/Mouse pad- Volcano Modecom Elbrus Internet- Jkiś lokalny, szału niema ,ale tragedii też niema ENG: local not bad
